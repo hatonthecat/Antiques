@@ -1,7 +1,7 @@
 # Antiques
 Miscellaneous electronics before the year 2000
 
-Royal RT7700 
+Royal RT7700 Video: https://www.youtube.com/watch?v=Wu8AvKUzRoA
 
 ![image](https://github.com/hatonthecat/Antiques/assets/76194453/5dd4d1e2-30ae-468e-aa63-a4f09598a0dd)
 
