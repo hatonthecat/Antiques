@@ -3,8 +3,7 @@ Miscellaneous electronics before the year 2000
 
 Royal RT7700 Video: https://www.youtube.com/watch?v=Wu8AvKUzRoA
 
-![image](https://github.com/hatonthecat/Antiques/assets/76194453/5dd4d1e2-30ae-468e-aa63-a4f09598a0dd)
-
+![image](https://github.com/hatonthecat/Antiques/assets/76194453/cd96be90-2fc6-484d-945a-1aca23c76fa8)
 
 ![IMG_20231101_182737](https://github.com/hatonthecat/Antiques/assets/76194453/de29b415-6331-4440-b9b3-943cb1c985e3)
 
