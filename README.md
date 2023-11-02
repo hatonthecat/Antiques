@@ -15,3 +15,4 @@ Video: https://www.youtube.com/watch?v=Wu8AvKUzRoA
 
 ![image](https://github.com/hatonthecat/Antiques/assets/76194453/a840f6c8-f06e-4213-900d-d625af296c56)
 
+https://ploum.net/the-computer-built-to-last-50-years/ food for thought
