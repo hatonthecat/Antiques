@@ -1,5 +1,5 @@
 # Antiques
-Miscellaneous electronics before the year 2000
+Miscellaneous electronics before the year 2000 (not actual antiques)
 
 ---
 Royal RT7700 
